@@ -7,10 +7,12 @@
 *-Este es mi segundo año en la carrera y me esta gustando, me interesa guiarla para el lado gerencial y de ciberseguridad aunque recien esta empezando, 
 actualmente estoy cursando 4 materias anuales porque encontre un balance entre el club, la vida social y la facu.*
 
+*Las 4 materias que estoy cursando son: Sintaxis y Semantica de los Lenguajes, Arquitectura de Computadores, Algebra y Paradigmas de la Programacion.*
+
 ## Respecto a mi
 *-Me considero una persona extrovertida con ganas de afrontar, aprender y entender todo lo que la vida me pone enfrente. Hace una 1 año y medio tuve una
 perdida muy fuerte en mi vida que la cambio para siempre, esto me hizo entender y persibir las cosas de manera diferente y tratar de disfrutar todos los dias conmigo
-mismo y junto a las personas que mas amo y cariño les tengo*
+mismo y junto a las personas que mas amo y cariño les tengo.*
 
 *-Para cerrar con otro dato mio es que juego al basquet desde los 7 años en el club Defensores de Banfield y este es mi ultimo año de categoria formativa, el año pasado tuve mi primera experiencia en una 
 competencia Semi Profesional jugando la 4ta liga mas importante del pais con la primera del club. 
