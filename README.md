@@ -14,6 +14,8 @@ actualmente estoy cursando 4 materias anuales porque encontre un balance entre e
 perdida muy fuerte en mi vida que la cambio para siempre, esto me hizo entender y persibir las cosas de manera diferente y tratar de disfrutar todos los dias conmigo
 mismo y junto a las personas que mas amo y cariño les tengo.*
 
+*-Soy hincha de river desde chiquito por mi viejo, lamentablemente fui muy pocas veces a la cancha pero este año quiero hacerme socio activo asi voy más.*
+
 *-Para cerrar con otro dato mio es que juego al basquet desde los 7 años en el club Defensores de Banfield y este es mi ultimo año de categoria formativa, el año pasado tuve mi primera experiencia en una 
 competencia Semi Profesional jugando la 4ta liga mas importante del pais con la primera del club. 
 Hoy en dia participo en 3 categorias, juego en la posicion de base (basicamente el que lleva la pelota y distribuye el juego) y el basquet es una parte muy importante en mi vida.*
