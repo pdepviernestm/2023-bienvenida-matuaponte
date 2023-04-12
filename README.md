@@ -1,4 +1,4 @@
-# *Matias Aponte*
+# Matias Aponte
 
 *Hola! Soy **Matias**, tengo 19 años, soy de Lomas de Zamora, Buenos Aires y este es mi readme :)*
 
